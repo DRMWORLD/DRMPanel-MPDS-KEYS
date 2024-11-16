@@ -31,5 +31,8 @@
 
 ✔️ No virus and backdoors
 
+🕖 Works 24/7 No Time limitations
+
+▶️ Set the time to automatically refresh all streams
 
 # Join Telegram Channel https://t.me/+JKZ3sOsVfEY4OWM0
